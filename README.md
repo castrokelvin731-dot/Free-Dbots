@@ -22,3 +22,11 @@ Click "Run" to get started to see the results
 You can welcome to check our <b><a href="https://dboty.com">Dbot Website</a></b>, where we are posing many Free and premium Deriv Dbots each Week.
   
 Best regards, A Dbot Developer
+analysis tool 
+ai trading bot 
+matches differs hunting ai 
+run matches 
+stop differs 
+select even number 
+strade even
+stop loss 
